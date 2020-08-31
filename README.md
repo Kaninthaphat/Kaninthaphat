@@ -5,9 +5,9 @@
 🌱 I’m currently learning Front-End, Back-End, DevOps & more
 
 ## 🚩 Get in touch 
-⭐ [Line](#)
-⭐ [Facebook](#)
-⭐ [Website](#) comming soon ✌️
+⭐ [Line](#) <br>
+⭐ [Facebook](#) <br>
+⭐ [Website](#) comming soon ✌️ 
 
 ## 🌼 Quotes
 It's never too late to become what you might have been.
