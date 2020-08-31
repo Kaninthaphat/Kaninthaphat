@@ -1,4 +1,6 @@
-### Hi there 👋
+# Hi I'm Kaninthaphat, Welcome to my Github profile 👋
+
+🙋 สวัสดีครับ ผม คณินธพัฒน์ อาจหาญศรี หรือบอย เป็นคนที่ชอบและหลงไหลในการเขียนโปรแกรม ชอบเรียนรู้ พัฒนาตนเอง และมีความฝันที่อยากจะเป็น Full Stack Developer ครับ 😄
 
 <!--
 **Kaninthaphat/Kaninthaphat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
