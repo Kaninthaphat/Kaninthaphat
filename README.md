@@ -5,7 +5,7 @@
 🌱 I’m currently learning Front-End, Back-End, DevOps & more
 
 ## 🚩 Get in touch 
-⭐ [Line](#) <br>
+⭐ [Line](https://line.me/ti/p/780f0Z4ucq) <br>
 ⭐ [Facebook](#) <br>
 ⭐ [Website](#) comming soon ✌️ 
 
