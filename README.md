@@ -6,7 +6,7 @@
 
 ## 🚩 Get in touch 
 ⭐ [Line](https://line.me/ti/p/780f0Z4ucq) <br>
-⭐ [Facebook](#) <br>
+⭐ [Facebook](https://www.facebook.com/kaninthaphat.artharnsri.54) <br>
 ⭐ [Website](#) comming soon ✌️ 
 
 ## 🌼 Quotes
