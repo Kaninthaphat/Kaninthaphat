@@ -7,7 +7,7 @@
 ## 🚩 Get in touch 
 ⭐ [Line](https://line.me/ti/p/780f0Z4ucq) <br>
 ⭐ [Facebook](https://www.facebook.com/kaninthaphat.artharnsri.54) <br>
-⭐ [Website](#) comming soon ✌️ 
+⭐ [Website](https://kanin-dev.com) ✌️ 
 
 ## 🌼 Quotes
 It's never too late to become what you might have been. <br>
